@@ -27,7 +27,6 @@ Google Adwords là dịch vụ quảng cáo trên nền tảng tìm kiếm của
 - Đo lường và tối ưu hóa hiệu quả chiến dịch thông qua các công cụ báo cáo của Google Ads.
 - Hỗ trợ chiến lược quảng cáo theo mục tiêu chuyển đổi, tăng doanh thu hoặc thu thập thông tin khách hàng.
 
-- **Địa chỉ**: 49/09 Nguyễn Trường Tộ, Tp. Buôn Ma Thuột, Đắk Lắk
-- **Điện thoại**: 0943 943 179
-- **Email**: [info@dakdesign.net](mailto:info@dakdesign.net)
-- **Website**: [dakdesign.net](http://dakdesign.net)
+## Liên Hệ:
+- **Hotline**: 0943 943 179
+- **Email**: info@dakdesign.net
