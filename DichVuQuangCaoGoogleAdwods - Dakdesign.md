@@ -18,4 +18,7 @@ Với chi phí chỉ từ 200.000đ/ngày, DAKdesign có thể đưa website c�
 ## HIỆU QUẢ CAO NHẤT VỚI CHI PHÍ THẤP NHẤT
 DAKdesign cam kết mang lại hiệu quả dài hạn, với một chiến lược chi tiết và tối ưu, vì chúng tôi tin rằng đây là cách dẫn đến thành công bền vững.
 
-[Liên hệ với DAKdesign ngay hôm nay để bắt đầu chiến dịch quảng cáo hiệu quả!](https://www.dakdesign.net)
+## Liên Hệ:
+- **Hotline**: 0943 943 179
+- **Điện thoại**: 0943 943 179
+- **Email**: [info@dakdesign.net](mailto:info@dakdesign.net)
