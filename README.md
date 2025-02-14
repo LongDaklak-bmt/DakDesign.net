@@ -25,7 +25,7 @@ Với phương châm **"Thiết kế lên giấc mơ về tri thức"**, DAKdesi
 
 ## Thông tin liên hệ
 
-- **Website:** [dakdesign.net](https://www.dakdesign.net/?utm_source=chatgpt.com)  
+- **Website:** [dakdesign.net](https://www.dakdesign.net/)  
 - **Địa chỉ:** 49/09 Nguyễn Trường Tộ, TP. Buôn Ma Thuột, Đắk Lắk  
 - **Hotline:** 0943 943 179  
 - **Email:** contact@dakdesign.net  
