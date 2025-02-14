@@ -1,4 +1,4 @@
-# [Dịch Vụ Quảng Cáo](https://www.dakdesign.net/vi/dich-vu/dich-vu-quang-cao/)
+# [Dịch Vụ Quảng Cáo tại DAKdesign](https://www.dakdesign.net/vi/dich-vu/dich-vu-quang-cao/)
 
 ## [Dịch Vụ Quảng Cáo Google Adwords](https://www.dakdesign.net/dich-vu-quang-cao-google-adwords/)
 Dịch vụ Quảng Cáo Google Adwords của DAKdesign giúp doanh nghiệp tối ưu hóa chiến dịch quảng cáo trực tuyến trên nền tảng Google, từ việc lựa chọn từ khóa phù hợp đến tối ưu hóa chiến lược đấu thầu và ngân sách. Quảng cáo Google Adwords giúp tăng trưởng lưu lượng truy cập vào website và gia tăng doanh thu, đồng thời cung cấp công cụ đo lường và phân tích hiệu quả chiến dịch, giúp bạn đưa ra những điều chỉnh chiến lược kịp thời.
