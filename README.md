@@ -4,20 +4,28 @@ DAKdesign là một công ty thiết kế website chuyên nghiệp có trụ s�
 
 ## Dịch vụ của DAKdesign
 
+## Dịch vụ của DAKdesign
+
 ### 1. Thiết kế website chuẩn SEO  
-Giúp website của bạn thân thiện với các công cụ tìm kiếm, tăng khả năng xuất hiện trên các trang kết quả tìm kiếm.
+Giúp website của bạn thân thiện với các công cụ tìm kiếm, tăng khả năng xuất hiện trên các trang kết quả tìm kiếm.  
+[Chi tiết dịch vụ Thiết kế website chuẩn SEO](https://www.dakdesign.net/seo)
 
 ### 2. Thiết kế giao diện đáp ứng (Responsive)  
-Đảm bảo website hiển thị tốt trên mọi thiết bị, từ máy tính để bàn đến điện thoại di động.
+Đảm bảo website hiển thị tốt trên mọi thiết bị, từ máy tính để bàn đến điện thoại di động.  
+[Chi tiết dịch vụ Thiết kế giao diện đáp ứng](https://www.dakdesign.net/responsive)
 
 ### 3. Dịch vụ quảng cáo trực tuyến  
-Hỗ trợ quảng bá thương hiệu và sản phẩm của bạn thông qua các kênh như Google Ads, Facebook Ads, Zalo Ads.
+Hỗ trợ quảng bá thương hiệu và sản phẩm của bạn thông qua các kênh như Google Ads, Facebook Ads, Zalo Ads.  
+[Chi tiết dịch vụ Quảng cáo trực tuyến](https://www.dakdesign.net/ads)
 
 ### 4. Dịch vụ SEO tổng thể  
-Tối ưu hóa website để cải thiện thứ hạng trên các công cụ tìm kiếm, thu hút lượng truy cập tự nhiên.
+Tối ưu hóa website để cải thiện thứ hạng trên các công cụ tìm kiếm, thu hút lượng truy cập tự nhiên.  
+[Chi tiết dịch vụ SEO tổng thể](https://www.dakdesign.net/seo-tong-the)
 
 ### 5. Thiết kế website theo ngành nghề  
-Cung cấp các mẫu giao diện phù hợp với từng lĩnh vực kinh doanh như bất động sản, thời trang, ô tô, giáo dục, và nhiều ngành nghề khác.
+Cung cấp các mẫu giao diện phù hợp với từng lĩnh vực kinh doanh như bất động sản, thời trang, ô tô, giáo dục, và nhiều ngành nghề khác.  
+[Chi tiết dịch vụ Thiết kế website theo ngành nghề](https://www.dakdesign.net/website-theo-nganh)
+
 
 ## Phương châm hoạt động
 
