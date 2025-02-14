@@ -18,3 +18,8 @@ Khóa học Xây dựng chiến lược Marketing giúp học viên phát triể
 - Hiểu về các mô hình marketing phổ biến và cách áp dụng chúng vào thực tế.
 - Học cách theo dõi và điều chỉnh chiến lược marketing khi cần thiết.
 
+## Liên Hệ:
+- **Địa chỉ**: 49/09 Nguyễn Trường Tộ, Tp. Buôn Ma Thuột, Đắk Lắk
+- **Điện thoại**: 0943 943 179
+- **Email**: [info@dakdesign.net](mailto:info@dakdesign.net)
+- **Website**: [dakdesign.net](http://dakdesign.net) 
