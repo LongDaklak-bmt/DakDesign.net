@@ -41,7 +41,6 @@ Gói cơ bản thích hợp cho các doanh nghiệp mới bắt đầu hoặc c�
 
 ## Liên Hệ:
 - **Hotline**: 0943 943 179
-- **Email**: info@dakdesign.net
 - **Điện thoại**: 0943 943 179
 - **Email**: [info@dakdesign.net](mailto:info@dakdesign.net)
 
